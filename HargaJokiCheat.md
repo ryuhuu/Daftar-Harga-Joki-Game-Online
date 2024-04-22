@@ -1,4 +1,4 @@
-# Price list Joki Cheat
+# Daftar Harga Joki Cheat
 Order atau Hubungi saya di
 
 Discord - [Ryuhuu](<https://discordapp.com/users/1027790097699045427>)
