@@ -1,5 +1,5 @@
 # Price list Joki Cheat
-Hubungi saya di
+Order atau Hubungi saya di
 
 Discord - [Ryuhuu](<https://discordapp.com/users/1027790097699045427>)
 
