@@ -39,5 +39,5 @@
 - Free Request Build Character ( Special )
 - Bonus level max BP* ( Special )
 - Dirawat seperti akun pribadi ✔
-- Rawat akun pake cheat? yaelah ngerawat doang ngapain pake cheat
+- Rawat akun pake cheat? TIDAK MENGGUNAKAN CHEAT SAMA SEKALI
 - Akunku prematur excit tetep ga pake cit bg ??? AMAN, dibantu coop teman joki saya
