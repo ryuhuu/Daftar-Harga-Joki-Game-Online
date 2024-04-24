@@ -17,10 +17,8 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 
 > [Price List Joki Manual](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/PriceListJokiManual.md>)
 ## ✨ Rawat Akun
-> [Genshin Impact](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/HargaJokiCheat.md>)
+> [Genshin Impact/ Honkai Star Rail](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/RawatAkun.md>)
 
-
-> [Honkai Star Rail](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/PriceListJokiManual.md>)
 
 # Testimoni ??? Cek Sorotan 
 Instagram - Ryuhuu (Cooming soon)
