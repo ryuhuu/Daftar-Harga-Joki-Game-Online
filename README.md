@@ -12,7 +12,7 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 
 > [Price List Joki Manual](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/PriceListJokiManual.md>)
 ## ⭐ Honkai Star Rail
-> [Harga Joki Cheat](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/HargaJokiCheat.md>)
+> [Harga Joki Cheat](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/HargaJokiCheat2.md>)
 
 
 > [Price List Joki Manual](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/PriceListJokiManual.md>)
