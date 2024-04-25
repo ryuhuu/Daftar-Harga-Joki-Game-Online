@@ -1,4 +1,4 @@
-# Joki HSR Cheat
+# Price List Joki HSR Manual
 > Quest
 ```
 Kuning = 35k
