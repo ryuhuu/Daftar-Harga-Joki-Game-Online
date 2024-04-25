@@ -1,4 +1,12 @@
 ## Rawat Akun
+Order atau Hubungi saya di
+
+Discord - [Ryuhuu](<https://discordapp.com/users/1027790097699045427>)
+
+Telegram - [Ryuhuuz](<https://t.me/Ryuhuuz>)
+
+Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibextid=ZbWKwL>)
+
 ![gambar](https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/assets/136698330/56e170c1-74d5-4560-8c2a-92afb614d5d2)
 
 
