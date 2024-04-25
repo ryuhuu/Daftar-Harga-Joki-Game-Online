@@ -1,4 +1,4 @@
-# Price List Harga Joki Manual
+# Price List Harga Joki Genshin Impact Manual
 Order atau Hubungi saya di
 
 Discord - [Ryuhuu](<https://discordapp.com/users/1027790097699045427>)
