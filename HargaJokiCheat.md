@@ -9,7 +9,7 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 
 
 ## Explore Tevyat
-> Belum <50% 
+> Dari 0%-50% Joki ke 100%
 ```
 Mondstads (Bonus Dragonspine) = 35k
 Liyue = 50k
@@ -21,7 +21,7 @@ Enkanomiya = 20k
 Underground Chasm = 20k
 ```
 
-> Sudah >50% 
+> Dari 50%-89% Joki ke 100%
 ```
 Mondstads (Bonus Dragonspine) = 25k
 Liyue = 30k
