@@ -12,10 +12,10 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 > Dari 0%-50% Joki ke 100%
 ```
 Mondstads (Bonus Dragonspine) = 35k
-Liyue = 50k
+Liyue (Bonus Chasm Atas) = 50k
 Inazuma = 75k
 Sumeru = 200k
-Fontaine = 100k
+Fontaine (Bonus Nostoi Region) = 110k
 Chenyu Vale = 40k
 Enkanomiya = 20k
 Underground Chasm = 20k
@@ -24,17 +24,18 @@ Underground Chasm = 20k
 > Dari 50%-89% Joki ke 100%
 ```
 Mondstads (Bonus Dragonspine) = 25k
-Liyue = 30k
+Liyue (Bonus Chasm Atas) = 40k
 Inazuma = 35k
-Sumeru = 100k
-Fontaine = 50k
+Sumeru = 115k
+Fontaine (Bonus Nostoi Region) = 60k
 Chenyu Vale = 25k
 Enkanomiya = 15k
 Underground Chasm = 15k
 ```
 
-> Kurang 10% 
-- Kirim ss explore, dan dapatkan diskon !!!
+> Dari 90%-99% ke 100%
+
+Kirim ss explore, dan dapatkan harga termurah !!!
 
 ## Info Joki
 - Free Daily Mission Selama Joki
