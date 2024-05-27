@@ -33,7 +33,7 @@ Enkanomiya = 15k
 Underground Chasm = 15k
 ```
 
-> Dari 90%-99% ke 100%
+> Dari 90%-99% Joki ke 100%
 
 Kirim ss explore, dan dapatkan harga termurah !!!
 
@@ -49,6 +49,26 @@ Kirim ss explore, dan dapatkan harga termurah !!!
 - Looting Material Random
 - Bisa Streaming Joki ( Tambah biaya 10k )
  Soalnya pake kuota sendiri, hehe
+
+-----------
+
+## Only Culus/ Oculi
+```
+ALL culus = 75k
+Anemoculus 65 = 5K
+Geoculus 131 = 10K
+Electroculus 181 = 15K
+Dendroculus 271 = 25K
+Hydroculus 271 = 25K
+Spirit Carp 50 = 5K
+Crimson Agate 80 = 5K
+Lumenspar 82 =  5K
+```
+## Info
+Harga Sepaket
+Jika kurang 1-20 culus, harga sama !!!
+
+------
 
 ## Lainnya 
 > Quest
