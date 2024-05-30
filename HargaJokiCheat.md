@@ -39,7 +39,7 @@ Kirim ss explore, dan dapatkan harga termurah !!!
 
 ## Info Joki
 - Free Daily Mission Selama Joki
-- Bonus Achievement ( Jika masih ada )
+- Bonus Achievement RANDOM ( Jika masih ada )
 - Free Looting Oculus/ Oculi
 - Free Open Teleport
 - Free Level Up Pohon Region
