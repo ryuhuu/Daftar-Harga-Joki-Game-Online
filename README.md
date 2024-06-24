@@ -19,7 +19,7 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 
 > ~~[Price List Joki Manual](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/PriceListJokiManualHSR.md>)~~
 ## ✨ Rawat Akun
-> [Genshin Impact/ Honkai Star Rail](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/RawatAkun.md>)
+> [Genshin Impact](<https://github.com/ryuhuu/Daftar-Harga-Joki-Genshin-Impact/blob/main/RawatAkun.md>)
 
 ---------
 --------
