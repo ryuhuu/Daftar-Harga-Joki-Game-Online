@@ -83,7 +83,7 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 - Free Looting Oculus/ Oculi
 - Free Open Teleport
 - Free Level Up Pohon Region
-- Dikerjakan Menggunakan Korepi
+- Dikerjakan Menggunakan Pertamax
 - Pengerjaan di Usahakan Secepatnya
 - Harga Belum Termasuk Quest World yg Dibutuhkan
 - Looting Material Random
