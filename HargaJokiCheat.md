@@ -29,9 +29,9 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 > - Sumeru = 115k
 > - Fontaine (Bonus Nostoi Region) = 60k
 > - Chenyu Vale = 25k
-> - Enkanomiya = 13k
-> - Underground Chasm = 13k
-> - Sea of Bygone Eras = 13k
+> - Enkanomiya = 15k
+> - Underground Chasm = 15k
+> - Sea of Bygone Eras = 15k
 
  ## 🔍 Dari 90%-99% Joki ke 100%
 > [!NOTE]
