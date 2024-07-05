@@ -95,5 +95,5 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 > Build Karakter
 - Disarankan menggunakan frasin
 - Spam domain sampai tercukupi
-> Spiral
+> Spiral + Imaginarium Theater
 - Result normal tidak BRUTAL
