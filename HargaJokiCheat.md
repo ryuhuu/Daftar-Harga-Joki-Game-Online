@@ -70,11 +70,10 @@ Facebook - [Ryuhuu](<https://www.facebook.com/profile.php?id=61557697891306&mibe
 - Floor 9-12 = 15k
 - 1 Floor = 4k
 
-## ⚔ Imaginarium Theater
+## ⚔ Imaginarium Theater (Konten EndGAME kalo belum keascend = ngga bisa joki)
 - Easy Mode (3 Act) = 5k
 - Normal Mode (6 Act) = 10k
 - Hard Mode (8 Act) = 15k
-# Konten EndGAME kalo belum keascend = ngga bisa joki
 
 ## 🎣 Weapon Mancing (1 Unit)
 - Weapon + R5 = 35k
